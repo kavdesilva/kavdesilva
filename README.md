@@ -1,4 +1,4 @@
-### Hi there 👋
+### Hi there! 🌻
 
 ### I am a software engineer with ten years of experience working with people in a multitude of client-facing positions. I believe in building high quality products that are beautiful, functional and easy to use. As a team-player, I believe communication is key to making the creative process a success. I love to learn and I am not afraid to take on a challenge–there is nothing more satisfying than a hard-won solution to a difficult problem.
 
